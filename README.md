@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ChoccyMilkOreo
+- 👀 I’m interested in: Gaming and Console Modding
+- 🌱 I’m currently learning: Game Development
+- 📫 You can reach me through discord @ choccymilkoreo
