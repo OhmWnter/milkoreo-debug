@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @milkoreo-debug
 - 👀 I’m interested in: Gaming and coding
 - 🌱 I’m currently learning: Game Development
-- 📫 You can reach me through discord @ choccymilkoreo
+- 📫 You can reach me through discord @ .milkoreo
